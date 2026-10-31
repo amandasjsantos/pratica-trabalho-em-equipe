@@ -3,7 +3,7 @@
 ## Integrantes
 
 - Stela · sua dupla neste projeto
-- Amanda Santos de Jesus
+- Amanda Santos de Jesus · ADS
 
 ## Combinados do time
 
